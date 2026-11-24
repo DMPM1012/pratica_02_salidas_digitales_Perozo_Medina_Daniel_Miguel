@@ -1,0 +1,1 @@
+https://www.tinkercad.com/things/f5dZRPzgc8K-pratica02salidasdigitalesperozomedinadanielmiguel?sharecode=Bvb3QxMgEvT09KDt4iABkpvHRPdkQbYowxyzaM6jnOs
